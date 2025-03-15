@@ -1,4 +1,8 @@
 # [[משחק חי]]מכבי פ"ת נגד עירוני ק"ש משחק חי 2025-03-15LIVE-TV]]
+.
+<b><a rel="noopener nofollow" href="https://lullu-vut.blogspot.com/2025/03/soccer.html">🔴📺LINK📲👉עירוני ק"ש נגד מכבי פ"ת שידור חי</a></b>
+
+[![](https://gitlab.com/gitlab-org/growthproject/uploads/530917e2ec5ef3de8f08074ec6ebb5f8/tv-image.gif)](https://cude-de-sobar.blogspot.com/2025/03/v1.html)
 
 עירוני קרית שמונה נגד מכבי פתח תקוה: תוצאות לייב, הרכבים
 תוצאות אחרונות ; 2/5. ניצח את המשחק. 1/5 ; 2/5. שתי הקבוצות יבקיעו. 2/5 ; 1.6. שערים שהובקעו. 0.6 ; 0.94. שערים צפויים. 0.68.
